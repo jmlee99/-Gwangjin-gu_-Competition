@@ -1,1 +1,1 @@
-# -Gwangjin-gu_-Competition
+# Gwangjin-gu_Competition
